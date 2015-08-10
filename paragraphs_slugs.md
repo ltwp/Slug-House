@@ -65,3 +65,15 @@ On my ride home today the air was thick and I turned to look at houses along the
 ~
 
 When it rains the slugs come out of the ground, through the cracks in the cement and gaps between the stones. They wind their way around the house, masses of greasy, greying flesh. We used to feed them the remainders of cabbage and lettuce when friendly, beer and salt when maleficent, dumping it all out of the window in the kitchen while keeping the door locked tight.
+
+~
+
+I look up from my laptop screen after a few hours of digital reading and the sky is a deep purple, descending into an illuminated oxblood, as the sun sets. I didn’t notice until I turned around to stretch my back. Suddenly the couch feels very small, very pointless. The hours wasted away. I’m here to work and read, I tell myself, but the sky, my gosh. De lucht. 
+
+~
+
+The way the teacups are stacked, I think my grandmother is the only one who can do it so precisely. 
+
+~
+
+As I stay longer, the smell of the house becomes harder to describe. I’m becoming too accustomed to it. When I’m buried in my own thoughts, though, and go up the stairs, or open a door suddenly, or wake up from an accidental nap, it can catch me. Old, wet wood. New, wet soil. Starched linens. Dust and disintegrating upholstery. The house doesn’t have a basement. If it did, it would be underwater. But I think this brings the soil and moss that much closer to the interior rooms. 
