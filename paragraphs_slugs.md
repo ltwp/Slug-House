@@ -77,3 +77,23 @@ The way the teacups are stacked, I think my grandmother is the only one who can 
 ~
 
 As I stay longer, the smell of the house becomes harder to describe. I’m becoming too accustomed to it. When I’m buried in my own thoughts, though, and go up the stairs, or open a door suddenly, or wake up from an accidental nap, it can catch me. Old, wet wood. New, wet soil. Starched linens. Dust and disintegrating upholstery. The house doesn’t have a basement. If it did, it would be underwater. But I think this brings the soil and moss that much closer to the interior rooms. 
+
+~
+
+Once upon waking up early, having dreamt that when I awoke, i stepped to a frontal window on the second floor, and saw a woman, at dawn, wearing sll black but with cropped white hair. she was collecting some personal affects as she moved out of the bushes and stood in the early daylight on thr path by the front door. I froze, in fear, but moved and hit the glass of the window. i fon’t think she saw me but her eyes widened and she hurriedly shuffled towards the front gate and then vanished.
+
+The morning after waking up to this memory, when I opened the door to go for a run, a black cat darted out of the bushes and ran in almost the same path, squeezing out through a gap near the gate.
+
+~
+
+There are two people who I see coming atound the house with some regularity: the gardener, and the housekeeper. They have worked here longer than I have been alive, likely more than double even. When I am alone the house feels like my fortress. I have pushed ffurniture atound to suit my needs and have filled its rooms as much as I can with my two suitcases of things. When they come by and drift in and around, the house feels porous, but I also feel part of something bigger.
+
+~
+
+the housekeeper used to live just down the block but now moved into the nearest town. i know that i visited her and her husband when I was a child but couldn’t remember which house it was until biking past one morning. i saw a brick entryway that juts out from the south side of the house and suddenly _that was it_, i remember the awkward entry, and peeking all the way through to the kitchen, and the cramped bicameral living room with tall, pointed ceiling, and the housekeeper’s husband offering me candy and perhaps the fireplace is going. I don’t know who lives there now.
+
+~
+
+At the grocery store today I think I got away with not sounding like an American. 
+
+~
